@@ -82,4 +82,4 @@ Currently working on more programming and software development projects.
 
 ---
 
-⭐ Thanks for visiting my profile!
+⭐ Thanks for visiting my profile
